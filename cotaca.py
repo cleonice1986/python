@@ -1,1 +1,0 @@
-Cotacao do dola
